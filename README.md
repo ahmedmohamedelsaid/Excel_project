@@ -74,6 +74,6 @@ Revenue Increase: 8–12% during peak season
 
 Margin Uplift: 3–5%
 
-Cost Savings: Less stockouts and markdowns
+Cost Savings: Few stockouts and markdowns
 
 ROI: Payback within 4–6 months
